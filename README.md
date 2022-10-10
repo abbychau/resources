@@ -27,3 +27,12 @@
 
 
 - https://github.com/ripperhe/Bob
+
+- https://appstorrent.ru/
+- http://mac-torrent-download.net/
+- https://xclient.info/
+- https://www.waitsun.com/
+- https://apps.cmacked.com/
+- https://www.torrentmac.net/
+- https://foxirj.com/
+- https://www.macbl.com/
